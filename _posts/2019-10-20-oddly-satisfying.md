@@ -22,3 +22,16 @@ Oddly satisfying이란 미묘한 색상과 리듬의 조합으로 미학적인 �
 Oddly satisfying한 요소가 아름답게 느껴지는 것에는 인간의 마음속에 존재하는 대칭, 패턴, 반복 등에 대한 선호가 기초하고 있을 것으로 생각되며, ASMR와도 관련된 장르로 볼 수 있다.
 
 향후 이러한 요소를 이용한 작품을 만들어볼 예정이다
+
+## 흥미로운 링크들
+
+* [Hydraulic press vs candles](https://www.reddit.com/r/oddlysatisfying/comments/ay6jt1/hydraulic_press_vs_candles/)
+* [Professional onion cutting skills](https://www.reddit.com/r/oddlysatisfying/comments/djessi/professional_onion_cutting_skills/?utm_source=share&utm_medium=web2x)
+* [when you are in the profession and you can't stand to watch](https://www.reddit.com/r/oddlysatisfying/comments/c14br2/when_you_are_in_the_profession_and_you_cant_stand/?utm_source=share&utm_medium=web2x)
+* [The most satisfying sport to watch](https://www.reddit.com/r/oddlysatisfying/comments/7wmy54/the_most_satisfying_sport_to_watch/)
+* [Cleaning out the downspout](https://www.reddit.com/r/oddlysatisfying/comments/7p873u/cleaning_out_the_downspout/?utm_source=share&utm_medium=web2x)
+* [The air vent in my friends car can perpetually ...](https://www.reddit.com/r/oddlysatisfying/comments/ct6nkv/the_air_vent_in_my_friends_car_can_perpetually/)
+* [Card Shuffling](https://www.reddit.com/r/oddlysatisfying/comments/ajjq72/card_shuffling/)
+* [When she pulls the thread tight on this perfect denim seam repair 👌](https://www.reddit.com/r/oddlysatisfying/comments/aikkcd/when_she_pulls_the_thread_tight_on_this_perfect/)
+* [Smooshing kinetic sand](https://www.reddit.com/r/oddlysatisfying/comments/akckwr/smooshing_kinetic_sand/?utm_source=share&utm_medium=web2x)
+
