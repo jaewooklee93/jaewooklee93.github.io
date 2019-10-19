@@ -34,4 +34,7 @@ Oddly satisfying한 요소가 아름답게 느껴지는 것에는 인간의 마�
 * [Card Shuffling](https://www.reddit.com/r/oddlysatisfying/comments/ajjq72/card_shuffling/)
 * [When she pulls the thread tight on this perfect denim seam repair 👌](https://www.reddit.com/r/oddlysatisfying/comments/aikkcd/when_she_pulls_the_thread_tight_on_this_perfect/)
 * [Smooshing kinetic sand](https://www.reddit.com/r/oddlysatisfying/comments/akckwr/smooshing_kinetic_sand/?utm_source=share&utm_medium=web2x)
-
+* [Watermelon jelly](https://www.reddit.com/r/oddlysatisfying/comments/a2ug2n/watermelon_jelly/)
+* [Fruits and Vegetables](https://www.reddit.com/r/oddlysatisfying/comments/aufq8k/fruits_and_vegetables/)
+* [Winter morning](https://www.reddit.com/r/oddlysatisfying/comments/7gwwip/winter_morning/)
+* [This might just be satisfying to me but I cut sheets of metal with a laser and they are tabbed in so they don’t fall off and I found an easy way to untab all of the parts on the sheet at once basically](https://www.reddit.com/r/oddlysatisfying/comments/c8cqtm/this_might_just_be_satisfying_to_me_but_i_cut/)
