@@ -1,5 +1,6 @@
 ---
 published: true
+title: Oddly satisfying
 ---
 Oddly satisfying이란 미묘한 색상과 리듬의 조합으로 미학적인 영상을 만들어내는 것을 표현하는 영미권 웹의 용어이다. 2013년 Reddit에서 시작되었다고 한다.
 
